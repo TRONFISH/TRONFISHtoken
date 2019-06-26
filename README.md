@@ -1,5 +1,5 @@
 # TRON FISH
-Collect, trade and grow Tron fish tokens in the new based on Tron smart contracts. Preorder your FISH for the Stable release tokens with discount today!
+Collect, trade and grow TRON FISH tokens in the new based on Tron smart contracts. Preorder your FISH for the Stable release tokens with discount today!
 
 ## What is TRON FISH
 Collect, trade and grow TRON FISH tokens in the new based on Tron smart contracts. Preorder your FISH for the Stable release tokens with discount today!
